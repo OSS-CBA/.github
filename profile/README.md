@@ -1,4 +1,4 @@
-# OSS-CBA
+# Omnnia Solvit
 
 Hello people! thank you to be interested in our work ✨
 
