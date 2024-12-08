@@ -1,4 +1,4 @@
-# Omnnia Solvit
+# Omnia Solvit
 
 Hello people! thank you to be interested in our work ✨
 
